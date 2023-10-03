@@ -1,2 +1,2 @@
-# 8-ano
+# 8º - ano
 Tecnologia e Inovação
